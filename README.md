@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @gurdiano
+- 👀 I’m interested in back-and or full stack
+- 🌱 I’m currently learning 'C' and 'JAVA'
+- 📫 You can reach me on Discord("D A II V#8015") or outlook ("tiagofran2013@hotmail.com")
